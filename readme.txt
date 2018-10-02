@@ -1,1 +1,1 @@
-Ala ma kota
+Ala ma 2 koty
