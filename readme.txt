@@ -1,1 +1,1 @@
-Ala ma 2 koty
+Ala ma 3 koty
